@@ -1,0 +1,2 @@
+# kristy
+According to a recent article published by LinkedIn Pulse, "63 percent of workers aged 34 and below..complaint they are not being properly trained for commanding positions at work." It is no secret, that Millennials are more prompt to change jobs and find employers that take talent development more seriously. Employers are seeing a correlation between employees' turnover rate and professional development. 
